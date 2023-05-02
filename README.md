@@ -1,0 +1,3 @@
+LMAO
+COPE
+PEDOS
